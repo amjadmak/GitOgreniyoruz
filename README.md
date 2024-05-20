@@ -47,7 +47,7 @@ YÜzüğü niye kartallarla götürmediler
 ===============================
 
 selamın aleyküm ben emre
-
+ibnel şarmuta
 
 
 
